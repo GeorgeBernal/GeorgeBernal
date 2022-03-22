@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GeorgeBernal
 - 👀 I’m interested in Sports
-- 🌱📱I’m currently learning Digital Transforming
+- 🌱📱I’m currently learning Digital Transformation
 - 💞️ I’m looking to collaborate on everything about Technology
 - 📫 How to reach me https://www.linkedin.com/in/jorge-manuel-bernal-torres-b3184285/
 
